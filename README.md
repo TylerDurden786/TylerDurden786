@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **omkarshendeofficial@gmail.com**
 
-- ⚡ Fun fact **I am a self-taught developer who transitioned from Mechnaical Engineering**
+- ⚡ Fun fact **I am an autodidact developer who transitioned from Mechnaical Engineering**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
